@@ -1,6 +1,6 @@
 # whoami? 
 ## Hello! Im Chris Panthofer 👋
-## Cyber Security | Operations Officer | EOD 
+## Cyber Security | Operations Officer | 💣EOD 
 
 </br>
 
